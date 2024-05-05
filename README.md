@@ -4,8 +4,8 @@
 - 💞️ I’m looking for work in companies that require my services
 - 📫 contact me:
 
-*facebook:
-https://www.facebook.com/duemarfra/
+*linkedin:
+https://www.linkedin.com/in/marcelo-due/
 *Email:
 duemarfra@gmail.com
 *Telegram:
